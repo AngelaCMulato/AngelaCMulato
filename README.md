@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AngelaCMulato
+- 👋 Hi, I’m @AngelaCMulato, professora na Escola Estadual Oracina Correa de Moraes Rodine Marilia-SP
 - 👀 I’m interested in estagios e/ou emprego na area de ADS/T.I
 - 🌱 I’m currently learning html
 - 📫 How to reach me amulato@prof.educacao.sp.gov.br
